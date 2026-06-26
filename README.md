@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+My names is Joseph I use He/Him pronounce, and I am looking to learn how to get better at coding for in the future. I have learn Koltin and Swif coding small expirence. I love colabarating with people to see if I could help out or not.
+
